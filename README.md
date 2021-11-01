@@ -52,3 +52,18 @@ https://ironhack.zoom.us/rec/share/PTnrXv4FekD4YPtKzv2A5KnvJoiXjvTkDGF3eMluAD1Ye
 
 https://ironhack.zoom.us/rec/share/PTnrXv4FekD4YPtKzv2A5KnvJoiXjvTkDGF3eMluAD1YeChFh1Ci8TKaKmjhR7p4.3N9qtSZA2pmkdghG?startTime=1635336350000
 
+### Dia 4 - jueves, 28 de octubre
+
+https://ironhack.zoom.us/rec/share/g393cg9kCYKQGBRRscJUvAYtP4lvti62aRk4NkTYPOkJcM7nr3zqS5C-CXwsTSdj.9GiV-Ob2CzVTn_km?startTime=1635404604000
+
+https://ironhack.zoom.us/rec/share/g393cg9kCYKQGBRRscJUvAYtP4lvti62aRk4NkTYPOkJcM7nr3zqS5C-CXwsTSdj.9GiV-Ob2CzVTn_km?startTime=1635423403000
+
+### Dia 5 - viernes, 29 de octubre
+
+https://ironhack.zoom.us/rec/share/4hx5qJxeTkuo-Lk11knShaDB6fU3SRfSr0z9_27qb775oPziY1bewLcufwt6gdPK.IOwtWHp53OPghF71?startTime=1635491172000
+
+https://ironhack.zoom.us/rec/share/4hx5qJxeTkuo-Lk11knShaDB6fU3SRfSr0z9_27qb775oPziY1bewLcufwt6gdPK.IOwtWHp53OPghF71?startTime=1635514452000
+
+https://ironhack.zoom.us/rec/share/4hx5qJxeTkuo-Lk11knShaDB6fU3SRfSr0z9_27qb775oPziY1bewLcufwt6gdPK.IOwtWHp53OPghF71?startTime=1635520649000
+
+
