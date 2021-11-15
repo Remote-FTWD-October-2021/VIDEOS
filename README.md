@@ -66,4 +66,43 @@ https://ironhack.zoom.us/rec/share/4hx5qJxeTkuo-Lk11knShaDB6fU3SRfSr0z9_27qb775o
 
 https://ironhack.zoom.us/rec/share/4hx5qJxeTkuo-Lk11knShaDB6fU3SRfSr0z9_27qb775oPziY1bewLcufwt6gdPK.IOwtWHp53OPghF71?startTime=1635520649000
 
+##Semana 3
+
+### PROJECT DAY
+
+https://ironhack.zoom.us/rec/share/yqQqoHW6sp3ul2xD-eQYPBFA6I0Lr2OwwRqRyrPkH1knoqG--HgWB5Fr8b8hbN3y.SSNEWRImCTq8zclw?startTime=1636117789000
+
+##Semana 4
+
+### Dia 1 - lunes, 8 de noviembre
+
+https://ironhack.zoom.us/rec/share/_FPNoQpi19BAFL_xnPoGyjWH83eciwtNvyEvhzWtj32BARa277GTXKNu0sR_IHah.eHbjrpl9EGyQFX6j?startTime=1636358865000
+
+### Dia 2 - martes, 9 de noviembre
+
+https://ironhack.zoom.us/rec/share/H0z-OAp0NUl85i8R-jfxKOQDRo6cg69lY5yrAeW9Jz54nQKLFC5A934zydMIlrPR.2p0UDTSXhbfFWHPU?startTime=1636445264000
+
+https://ironhack.zoom.us/rec/share/H0z-OAp0NUl85i8R-jfxKOQDRo6cg69lY5yrAeW9Jz54nQKLFC5A934zydMIlrPR.2p0UDTSXhbfFWHPU?startTime=1636470403000
+
+
+### Dia 3 - miercoles, 10 de noviembre
+
+https://ironhack.zoom.us/rec/share/x8HnMxFl9H-vUOymnY_hMOaia9pdOSOeQG5vNiEzcHZg_xPGkDHuxRLLCcIAKR27.YzQvfIfUbofx4aBL?startTime=1636537692000
+
+https://ironhack.zoom.us/rec/share/x8HnMxFl9H-vUOymnY_hMOaia9pdOSOeQG5vNiEzcHZg_xPGkDHuxRLLCcIAKR27.YzQvfIfUbofx4aBL?startTime=1636549555000
+
+### Dia 4 - jueves, 11 de noviembre
+
+https://ironhack.zoom.us/rec/share/5GLfx0plgLKSb8LA6VJPrPucTraI2CO-8vWr75TLdX0ohJGU6vXhCFAEOwZBgAP_.wTRBeL1SGwsF2-Xd?startTime=1636617885000
+
+https://ironhack.zoom.us/rec/share/5GLfx0plgLKSb8LA6VJPrPucTraI2CO-8vWr75TLdX0ohJGU6vXhCFAEOwZBgAP_.wTRBeL1SGwsF2-Xd?startTime=1636628990000
+
+https://ironhack.zoom.us/rec/share/5GLfx0plgLKSb8LA6VJPrPucTraI2CO-8vWr75TLdX0ohJGU6vXhCFAEOwZBgAP_.wTRBeL1SGwsF2-Xd?startTime=1636636101000
+
+### Dia 5 - viernes, 12 de noviembre
+
+https://ironhack.zoom.us/rec/share/GIeNvOIwNsfLCto0I6kFdvpQBqnuyB4cwMexUwCOWLiJPAn5fcqKIalj1vgO_69N.JCK7y_XGNGvALGZQ?startTime=1636704392000
+
+https://ironhack.zoom.us/rec/share/GIeNvOIwNsfLCto0I6kFdvpQBqnuyB4cwMexUwCOWLiJPAn5fcqKIalj1vgO_69N.JCK7y_XGNGvALGZQ?startTime=1636729509000
+
 
