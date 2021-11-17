@@ -106,3 +106,15 @@ https://ironhack.zoom.us/rec/share/GIeNvOIwNsfLCto0I6kFdvpQBqnuyB4cwMexUwCOWLiJP
 https://ironhack.zoom.us/rec/share/GIeNvOIwNsfLCto0I6kFdvpQBqnuyB4cwMexUwCOWLiJPAn5fcqKIalj1vgO_69N.JCK7y_XGNGvALGZQ?startTime=1636729509000
 
 
+## Semana 5
+
+### Dia 1 - lunes, 15 de noviembre
+
+https://ironhack.zoom.us/rec/share/Yt57hAb2Xr344UMAyz4TuUGiiR_3iB8lVsUzomNmJR8-E6yi_FFSA4IDcNazzDNj.hk0a9JnF-fF5Oe3c?startTime=1636964007000
+
+https://ironhack.zoom.us/rec/share/Yt57hAb2Xr344UMAyz4TuUGiiR_3iB8lVsUzomNmJR8-E6yi_FFSA4IDcNazzDNj.hk0a9JnF-fF5Oe3c?startTime=1636983183000
+
+### Dia 2 - martes, 16 de noviembre
+
+https://ironhack.zoom.us/rec/share/5keusTe6IKKVRVeehFHUu6ZrxLqWxMDO6lrJISnvR_uORQ3QGMxMUqFOJnIa4M6i.-0bn33cAluMXp5MQ?startTime=1637050103000
+
