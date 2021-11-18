@@ -118,3 +118,7 @@ https://ironhack.zoom.us/rec/share/Yt57hAb2Xr344UMAyz4TuUGiiR_3iB8lVsUzomNmJR8-E
 
 https://ironhack.zoom.us/rec/share/5keusTe6IKKVRVeehFHUu6ZrxLqWxMDO6lrJISnvR_uORQ3QGMxMUqFOJnIa4M6i.-0bn33cAluMXp5MQ?startTime=1637050103000
 
+### Dia 3 - miercoles, 17 de noviembre
+
+https://ironhack.zoom.us/rec/share/Ct9Y44CyWtvKWvcHw8P-_7NP_M0bEUpQpZwMtJhfYcvGFSOWFvSPrf9-sWKTiaRc.J1NVGmvSypUa6DRK?startTime=1637136431000
+
