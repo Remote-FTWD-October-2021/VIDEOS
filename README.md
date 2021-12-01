@@ -133,3 +133,16 @@ https://ironhack.zoom.us/rec/share/ZSPeD__ACIXTLdGgM1ZYE-5ATzHnkCYffUoQQDWCSqYZW
 https://ironhack.zoom.us/rec/share/6rU1kmIsfghbhHGGlhTqP0KdYFpwEm1pbjGSAmgG-fwJqleKIkyFiDGdfPzjJQ-l.6irDbk8Dx8bFhukO?startTime=1637309231000
 
 https://ironhack.zoom.us/rec/share/6rU1kmIsfghbhHGGlhTqP0KdYFpwEm1pbjGSAmgG-fwJqleKIkyFiDGdfPzjJQ-l.6irDbk8Dx8bFhukO?startTime=1637328834000
+
+## Semana 7
+
+### Dia 1 - lunes, 29 de noviembre
+
+https://ironhack.zoom.us/rec/share/cP15jIZGYOPqV7JtNsEd3_LGtV4KHcckyZHuJawLLMKaMA-6OZJIhrNO8E8M4rk.v8MPtTeVFtMkHGiJ?startTime=1638173160000
+
+### Dia 2 - martes, 30 de noviembre
+
+https://ironhack.zoom.us/rec/share/z5iV3Vq88fs398zQqgAH8ZZf6OjDFWksn5i17P2hqTWhaVmanl7wtz8JG9-d2_d7.wG3YA-jbg18ow7g3?startTime=1638259717000
+
+https://ironhack.zoom.us/rec/share/z5iV3Vq88fs398zQqgAH8ZZf6OjDFWksn5i17P2hqTWhaVmanl7wtz8JG9-d2_d7.wG3YA-jbg18ow7g3?startTime=1638288101000
+
